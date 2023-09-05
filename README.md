@@ -1,1 +1,1 @@
-explore loss larger coal field problem arrangement term control base opportunity social particularly care ring
+combine beginning clay bound carried make explore outer hour rhythm growth worry themselves hunter third
