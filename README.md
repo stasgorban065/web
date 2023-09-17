@@ -1,1 +1,1 @@
-swept independent bridge wide pattern bright opportunity slight getting central itself dot you softly before
+rice answer steady sides familiar gate coast track sail surprise lucky cotton locate on clothes
