@@ -1,1 +1,1 @@
-important concerned across image rays path afraid stage brave heart biggest little range against blind
+rest nuts duck youth sat sort meal know whole shinning research weather mice government kids
