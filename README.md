@@ -1,1 +1,1 @@
-doubt brother manner basic lost have consonant vessels cat property depth change sides won bread
+allow very built gradually mental worse safe eventually range plant occasionally therefore alphabet partly salmon
