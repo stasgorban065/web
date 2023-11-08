@@ -1,1 +1,1 @@
-allow very built gradually mental worse safe eventually range plant occasionally therefore alphabet partly salmon
+both language heading you letter upper army comfortable truck eight flag wild pond afraid sick
