@@ -1,1 +1,1 @@
-whenever describe coming damage place band plant combine strong copy her her cloud adjective melted
+shine wrapped according laid world make community height think shelf kept library train well ancient
