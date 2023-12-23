@@ -1,1 +1,1 @@
-blue company directly according art mix death hair country turn friend surrounded business queen cloud
+arrow beauty valley took popular laugh rocky lack accept coal nice wing gate orange middle
