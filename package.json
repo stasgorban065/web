@@ -1,11 +1,11 @@
 {
   "name": "webtea",
-  "version": "0.1.0",
+  "version": "0.1.1",
   "author": "stasgorban065",
   "license": "ISC",
   "repository": {
     "type": "git",
-    "url": "git+https://github.com/stasgorban065/web.git"
+    "url": "https://github.com/stasgorban065/web.git"
   },
   "dependencies": {
     "@testing-library/jest-dom": "^5.17.0",
