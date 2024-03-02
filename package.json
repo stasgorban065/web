@@ -1,6 +1,6 @@
 {
   "name": "webtea",
-  "version": "0.1.1",
+  "version": "0.1.2",
   "author": "stasgorban065",
   "license": "ISC",
   "repository": {
@@ -8,6 +8,8 @@
     "url": "https://github.com/stasgorban065/web.git"
   },
   "dependencies": {
+    "calculgiz": "^1.2.1",
+    "dependor": "^0.1.0",
     "@testing-library/jest-dom": "^5.17.0",
     "@testing-library/react": "^13.4.0",
     "@testing-library/user-event": "^13.5.0",
