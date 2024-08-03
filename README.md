@@ -1,1 +1,1 @@
-receive tape observe ear back activity firm fort vote simply stronger curve through center women
+rough everywhere frequently darkness pupil influence city donkey ship tube element tune excitement handsome difference
