@@ -1,1 +1,7 @@
-console.log('-------test-------');
+const dev = 'hello';
+const asd = 'asaa';
+
+
+
+
+console.log('main');
